@@ -1,5 +1,5 @@
 ---
-title: Fox In Japan
+title: Fox asdasdasd Japan
 subtitle: >-
   Apparently, Japan is covered in magical and irresistibly cute animal
   sanctuaries.
